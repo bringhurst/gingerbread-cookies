@@ -1,5 +1,7 @@
 ## Three-Ginger Cookies
 
+_These cookies are designed for taste and texture. You can decorate them, but they're not really made for that._
+
 ### Equipment Needed
 - Stand mixer with paddle attachment
 - Blue ice cream scoop (2 3/4 oz)
