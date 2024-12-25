@@ -29,12 +29,11 @@ _Makes about 2 cups_
 
 **Process**
 1. Heat oven to 300°F.
-2. Combine flour, cornstarch, sugars, salt, and spices in a medium bowl.
-3. Add melted butter and molasses. Using your hands, work mixture until it forms small clusters.
-4. Fold in crystallized ginger and fresh ginger until evenly distributed.
-5. Spread on a parchment-lined sheet pan.
-6. Bake for 20 minutes, breaking up clusters occasionally.
-7. Cool completely until hardened. Gently break up into smaller pieces and reserve for topping.
+2. Combine flour, cornstarch, sugars, salt, spices, and fresh ginger in a medium bowl.
+3. Add melted butter and molasses. Using your hands or a fork, work mixture until it forms small clusters.
+4. Spread on a parchment-lined sheet pan.
+5. Bake for 20 minutes, breaking up clusters occasionally.
+6. Cool completely until hardened. Gently break up into smaller pieces and reserve for topping.
 
 ### Three-Ginger Cookie Dough
 _Makes 16 cookies_
