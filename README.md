@@ -1,4 +1,4 @@
-## Three-Ginger Cookies
+## Gingerbread Cookies
 
 _These cookies are designed for taste and texture. You can decorate them, but they're not really made for that._
 
