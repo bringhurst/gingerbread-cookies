@@ -35,7 +35,7 @@ _Makes about 2 cups_
 4. Fold in crystallized ginger and fresh ginger until evenly distributed.
 5. Spread on a parchment-lined sheet pan.
 6. Bake for 20 minutes, breaking up clusters occasionally.
-7. Cool completely. Grind 1/4 of the mixture in food processor until fine, reserve for topping.
+7. Cool completely until hardened. Gently break up into smaller pieces and reserve for topping.
 
 ### Three-Ginger Cookie Dough
 _Makes 16 cookies_
