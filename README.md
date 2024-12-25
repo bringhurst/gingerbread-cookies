@@ -63,7 +63,7 @@ _Makes 16 cookies_
 1. Cream butter and sugars in stand mixer with paddle attachment on medium-high for 3 minutes (will vary based on butter temperature).
 2. Scrape down sides of bowl, add egg, vanilla, and molasses. Beat with the paddle attachment for 7-8 minutes until very light and fluffy. Periodically scrape down the sides if necessary.
 3. Reduce speed to low. Add flour, baking powder, baking soda, salt, and all spices. Mix just until dough comes together, about 30 seconds. You may need to scrape down the sides during this.
-4. Add Spiced Ginger Crumb and crystallized ginger, mix just until incorporated, about 10 seconds.
+4. Add Spiced Ginger Crumb and mix just until incorporated, about 10 seconds.
 
 ### Assembly
 1. Using a 2 3/4 oz cookie scoop (about 1/3 cup), portion dough onto parchment-lined sheet pans.
