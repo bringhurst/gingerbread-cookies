@@ -69,8 +69,8 @@ _Makes 16 cookies_
 2. Pat tops of cookie dough flat and sprinkle with reserved ground crumb mixture.
 3. Wrap tightly with plastic wrap and refrigerate overnight (minimum 1 hour), up to 1 week.
 4. Heat oven to 350°F.
-5. Arrange chilled cookies minimum 4 inches apart on parchment-lined sheet pans.
-6. Bake, one sheet at a time, 12-15 minutes until edges are lightly browned but centers are still slightly soft.
-7. While cookies are still warm (but not hot), sprinkle with a tiny pinch of flaky fleur del sel (5-10 flakes per cookie).
+5. Arrange chilled cookies minimum 4 inches apart on parchment-lined sheet pans. Approx 4 cookies on a half-sheet pan works well.
+6. Bake, one sheet at a time, 15-17 minutes until edges are lightly browned but centers are still slightly soft.
+7. While cookies are still warm (but not hot), sprinkle with a tiny pinch of ground black pepper.
 8. Cool completely on sheet pans or a rack.
 9. Dust very lightly with fresh ground pepper before serving.
