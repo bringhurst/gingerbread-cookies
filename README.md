@@ -7,7 +7,6 @@ _These cookies are designed for taste and texture. You can decorate them, but th
 - Blue ice cream scoop (2 3/4 oz)
 - Sheet pans
 - Parchment paper
-- Food processor
 - Digital scale
 - Microplane grater
 
