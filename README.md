@@ -20,14 +20,12 @@ _Makes about 2 cups_
 - 50g granulated sugar (1/4 cup)
 - 55g dark brown sugar (1/4 cup packed)
 - 2g kosher salt (1/2 teaspoon)
-- 5g fleur del sel (about 5-10 flakes per cookie)
 - 2g ground ginger (1 teaspoon)
 - 1g freshly ground black pepper (1/2 teaspoon)
 - 1g ground cinnamon (1/2 teaspoon)
 - 0.5g ground allspice (1/4 teaspoon)
 - 113g unsalted butter, melted (1 stick)
 - 21g molasses (1 tablespoon)
-- 57g crystallized ginger, finely minced (1/3 cup)
 - 6g fresh ginger, microplaned (about 1-inch piece)
 
 **Process**
@@ -46,7 +44,7 @@ _Makes 16 cookies_
 - 227g unsalted butter, room temperature (2 sticks)
 - 220g dark brown sugar (1 cup packed)
 - 100g granulated sugar (1/2 cup)
-- 50g large egg (1 large)
+- 100g large egg (2 medium)
 - 7g vanilla extract (1 1/2 teaspoons)
 - 43g molasses (2 tablespoons)
 - 240g bread flour (2 cups)
@@ -61,7 +59,6 @@ _Makes 16 cookies_
 - 0.5g ground nutmeg (1/4 teaspoon)
 - 0.25g ground cloves (1/8 teaspoon)
 - 200g Spiced Ginger Crumb
-- 113g crystallized ginger, roughly chopped (2/3 cup)
 
 **Process**
 1. Cream butter and sugars in stand mixer with paddle attachment on medium-high for 3 minutes (will vary based on butter temperature).
